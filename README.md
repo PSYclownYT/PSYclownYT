@@ -1,1 +1,4 @@
-hello! my name is Eliot. I am some guy who likes to do stupid shit with scratch. enjoy
+wow i make cool yes
+
+
+bro aliens boutta invade when gta6 drops holy yall could NOT take longer
